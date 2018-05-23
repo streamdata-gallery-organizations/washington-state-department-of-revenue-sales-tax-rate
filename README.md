@@ -1,0 +1,1 @@
+# washington-state-department-of-revenue-sales-tax-rate
